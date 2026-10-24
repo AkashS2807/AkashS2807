@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Thamizh
+# Hi there 👋 I'm Akash
 
 ---
 
